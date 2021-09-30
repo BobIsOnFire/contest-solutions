@@ -1,0 +1,1 @@
+https://acm.timus.ru/author.aspx?id=292604
